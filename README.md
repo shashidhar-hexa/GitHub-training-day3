@@ -1,2 +1,2 @@
-Hello ..Good day....Welcome to GitHub training day-3
+Hello freinds  ..Good day....Welcome to GitHub training day-3
 
